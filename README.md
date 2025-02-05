@@ -1,1 +1,1 @@
-# mAIka
+# mAika
